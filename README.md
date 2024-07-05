@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about CODES
 - 📫 How to reach me: INSTAGRAM : REII_SCHRODINGER
 - 😄 Pronouns: RENDI
-- ⚡ Fun fact: IM A VETERAN WEEBS
+- ⚡ Fun fact: IM A VETERAN WEEBS WHO HAVE DREAMING JOB AS DESIGNER/PROGRAMMER/GAMEDEVELOPER
 
